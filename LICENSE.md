@@ -1,4 +1,4 @@
-#  
+#  exclusive Scripts for all star tower defense offers the most advanced all star tower defense Script, with god mode and auto-collect. Perfect for
 
 
 
